@@ -6,7 +6,4 @@
 - 😄 Pronouns: Him / He
 - ⚡ Fun fact: I met the Dalai Lama oce
 
-<!---
-wallerz2024/wallerz2024 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
