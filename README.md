@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on Smart home automation.
 - 📫 How to reach me pubs.lineal_89@icloud.com
 - 😄 Pronouns: Him / He
-- ⚡ Fun fact: I met the Dalai Lama oce
+- ⚡ Fun fact: I met the Dalai Lama once
 
 
